@@ -1,0 +1,1 @@
+I'm out of the office. This auto-reply was composed by my professional self, who quit this morning. Leave a message and I'll pretend I never saw it.
